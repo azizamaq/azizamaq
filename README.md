@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @azizamaq
-- 👀 I’m interested in ... money. 
+- 👀 I’m interested in ... eh. 
 - 🌱 I’m currently learning ...nothing. i'm ignorant and like it that way. 
 - 💞️ I’m looking to collaborate on ... nothing. i'm an individualist. 
 - 📫 How to reach me ...don't. 
